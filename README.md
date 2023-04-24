@@ -1,4 +1,4 @@
-# Nux Technologia IX
+# Nux Socialis V
 
 ## Walkthrough Video: https://drive.google.com/file/d/1USxtqWhbEHp91kboBKEXao2u74XOORek/view
 
